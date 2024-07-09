@@ -17,7 +17,7 @@ It works perfectly for me and I hope it does for you.
 I did a livestream and we tested it out <3
 (https://www.youtube.com/live/v_0Z50BE1cY?si=TxiFFQvKfJoVtvvw)
 
-See my twitter post on here ()
+See my twitter post on here (https://x.com/LSRVZN/status/1810602277830574157)
 
 
 
