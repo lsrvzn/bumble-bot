@@ -1,5 +1,5 @@
 # BUMBLE-BOT
-This technology shouldnt be accessable in the hands of desperate men, but someone has to do it & let it be me.
+This technology shouldnt be accessible in the hands of desperate men, but someone has to do it & let it be me. 😂
 
 ## Pre-requisites:
 1. Bumble Premium Account
